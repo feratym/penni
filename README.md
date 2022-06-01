@@ -1,2 +1,0 @@
-# penni
-Separ Loh
